@@ -18,4 +18,4 @@ Feed manager values your privacy. This Privacy Policy explains how we collect, u
 We implement security measures to protect your information.
 
 ## Contact Us
-If you have any questions, please contact us at [your-email@example.com].
+If you have any questions, please contact us at hieuisme98@gmail.com.
